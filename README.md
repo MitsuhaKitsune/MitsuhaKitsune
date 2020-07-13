@@ -1,5 +1,7 @@
 ### Hi there 👋
 
+<img src="ahri.gif">
+
 My name it's Mitsuha Kitsune and I'm software developer.
 I’m currently working on [LeagueTails](https://leaguetails.com/), a dedicated community for League of Legends and [Never it's over Network](https://neveritsover.com/), a network and gamming community for other games and platforms.
 
