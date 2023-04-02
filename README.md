@@ -9,3 +9,7 @@ On my free time, I love contribute with opensource, so isn't rare see my name on
 
 ### Visits to my Github profile (since 11th Jun 2022)
 [![:MitsuhaKitsuneGithub](https://count.getloli.com/get/@MitsuhaKitsuneGithub)](https://count.getloli.com/get/@MitsuhaKitsuneGithub)
+
+
+
+You are a failure!! grow up!
